@@ -1,3 +1,5 @@
+https://discord.gg/WYKjYvpM4U
+
 Enjoy skid
 
 Undetected browser for bypassing hcap:
